@@ -9,4 +9,6 @@ pablo como el guanaco
 
 majo como el zorrillo
 
-tomas como el men que saca partes 
+tomas como el men que saca partes
+
+Integrante Grupo: Brito, De la Puente, Díaz, Nuño, Villasante
